@@ -2,10 +2,15 @@
 Debate  on Indoor sports and outdoor sports
 
 ## Akamjot singh
-i am going to debate on outdoor sports.
+
+i am going to debate on outdoor sports 
+
 
 
 
 
 ## Meetinder singh
-i am going to debate on idoor sports.
+
+im am going to debate on indoor sports
+
+
